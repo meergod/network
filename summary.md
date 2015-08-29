@@ -1,4 +1,4 @@
-# 感谢 [Phantom Knight](https://plus.google.com/109790703964908675921)，资料均转自其的g+
+# 感谢 [Phantom Knight](https://plus.google.com/109790703964908675921)，资料均转自其的[g+]((https://plus.google.com/109790703964908675921))
 
 关于翻墙和匿名与网络安全类科普文大集合
 
